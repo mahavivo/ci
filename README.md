@@ -22,7 +22,7 @@ vivo注：目前所见，金元词并无体量适当且声誉颇佳的独立选�
 
 3）`《明词综》`
 
-它是我在网上收集来的，略微编辑整理了一下，似乎子夜星网站（http://www.ziyexing.cn/shici/mingcizong/mingcizong_index.htm）上的文本质量更高，但它需要在线阅读使用。
+它是我在网上收集来的，略微编辑整理了一下，似乎子夜星网站（ http://www.ziyexing.cn/shici/mingcizong/mingcizong_index.htm ）上的文本质量更高，但它需要在线阅读使用。
 
 4）`《清词菁华》`
 
